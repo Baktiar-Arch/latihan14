@@ -1,0 +1,2 @@
+# latihan14
+hjshjdhka
